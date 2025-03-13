@@ -9,7 +9,7 @@ When comparing cryptocurrency exchanges, ​Binance and ​OKX emerge as two dom
 🚀 ​**Elevate Your Crypto Experience with OKX!**
 Trade with zero fees, access cutting-edge Web3 tools, and join 50M+ global traders. New users claim an exclusive bonus up to 100 USDT!
 
-👉 Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://bit.ly/OKXe)  
+👉 Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://www.ouxyi.link/ul/6CngT5?channelId=2198730223)  
 
 ---
 
