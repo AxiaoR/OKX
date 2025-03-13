@@ -5,6 +5,7 @@
 OKX stands as a globally recognized cryptocurrency exchange and Web3 platform, serving over 50 million users across 160+ countries. Awarded "Crypto Exchange of the Year 2024" by WeMoney, it combines institutional-grade security with beginner-friendly tools for trading Bitcoin (BTC), Ethereum (ETH), and 300+ other cryptocurrencies.
 
 🚀 ​**Start Your Crypto Journey Today!** New users enjoy ​zero trading fees and a ​welcome bonus of up to 100 USDT.
+
 👉 Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://www.ouxyi.link/ul/6CngT5?channelId=2198730223)
 
 ---
